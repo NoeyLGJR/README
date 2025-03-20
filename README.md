@@ -31,7 +31,7 @@
 
 📫 Connect with Me  
 📍 Based in Texas and California (soon) | 💬 Open to chats & collabs  
-🔗 [LinkedIn](https://www.linkedin.com/in/noeyjrwtx) | [Fiverr](https://www.fiverr.com/codeworksright) | [Upwork](https://www.upwork.com/freelancers/~01af18aa33f173cba3?mp_source=share) | [GitHub Repos](https://github.com/NoeyLGJR)  
+🔗 [LinkedIn](https://www.linkedin.com/in/noeyjrwtx) | [Fiverr](https://www.fiverr.com/codeworksright) | [Upwork](https://www.upwork.com/freelancers/~01af18aa33f173cba3?mp_source=share) | [GitHub Repos](https://github.com/NoeyLGJR?tab=repositories)  
 
 ---
 
